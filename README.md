@@ -2,7 +2,7 @@
 
 **Portafolio audiovisual — Daniel Varela**
 
-Bienvenido a mi espacio audiovisual. Aquí puedes explorar una selección de mis proyectos más recientes en dirección, producción y edición de video. Tengo más de diez años de experiencia en el campo de la producción audiovisual. En el año 2016 pude estrenar mi primer largometraje en el Festival de Cine Ecuatoriano en Nueva York (EFFNY) y en el 2017 en las salas comerciales de cine en Quito y Guayaquil. 
+Bienvenido a mi espacio audiovisual. Aquí puedes explorar una selección de mis proyectos más recientes en dirección, producción y edición de video. Tengo más de diez años de experiencia en el campo de la producción audiovisual. En el año 2016 pude estrenar mi primer largometraje en el Festival de Cine Ecuatoriano en Nueva York (EFFNY) y en el 2018 en las salas comerciales de cine en Quito y Guayaquil. 
 
 ---
 
